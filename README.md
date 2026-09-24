@@ -1,0 +1,1 @@
+# Snowpipe---Loading-Strategies-poyhlnk
